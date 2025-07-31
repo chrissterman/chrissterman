@@ -1,5 +1,5 @@
 Hey I am chrissterman. 
-I am a 25(M) with a strong passion to learn to create new things.
+I am a 29(M) with a strong passion to learn to create new things.
 learning new things to me is fantastic because the possibilites are endless. 
 I can speak three languages English, Spanish, and Japanese.
 
